@@ -1,6 +1,6 @@
 # Welcome to iMOB, iChain's Mixture of iBots
 
-![My Image](./Pics\FuckWhatTheyThink.png)
+![My Image](./Pics/FuckWhatTheyThink.png)
 
 **First watch these videos**
 
