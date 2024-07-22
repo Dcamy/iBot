@@ -1,0 +1,5 @@
+discord.py
+python-dotenv
+google-generativeai
+aiohttp
+emoji
