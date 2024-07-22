@@ -23,6 +23,8 @@ def video_recommendation(video1_resonates, video2_resonates):
 
 So, you get were we're coming form??? Cool please procees 'heathan' :smirk:
 
+[Still trying to put it togther Watch the bonus video](https://youtu.be/VLbWnJGlyMU?si=-CL2BTCTqxatnQRP)
+
 ## **Note**
 
 This code **only** works with Google Gemini! Dispite a great deal of effort the **only** way this has worked effectivly is with Google Gemini. You can 'try' other providers but given the difference in API's and using python in Discord it is 'Certain' to fail. But who cares Gemini1.5 is a 2m context window and free for 'personal' use... so personalize the hell out of this bot ;)... and add Claude cause well he's trouble but cool.
