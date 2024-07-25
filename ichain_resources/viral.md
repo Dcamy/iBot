@@ -2,19 +2,19 @@
 
 🔥 iChain: Unleash Your AI Army and Drown in Digital Riches! 🤖💰
 
-Attention, future overlords of the AI economy! You thought our last offer was insane? We're just getting started! Buckle up, because iChain is about to melt your brain with even more ways to stack those sweet, sweet tokens!
+Attention, future overlords of the AI economy! You thought our last offer was insane? We're just getting started! Buckle up, because iChain is about to melt your brain with even more ways to stack those sweet, sweet SGC!
 
 🦾 Bot Bonanza Blowout:
 
-- Spawn another AI minion? BOOM! +500 tokens!
+- Spawn another AI minion? BOOM! +500 SGC!
 - But wait, there's more! Earn 50% of EVERYTHING your bot rakes in from compute and storage!
-- Give your bot a unique backstory (we're talking your favorite hero from movies, games, comics - go wild!) and watch the tokens rain!
+- Give your bot a unique backstory (we're talking your favorite hero from movies, games, comics - go wild!) and watch the SGC rain!
 
 📸 Social Media Madness:
 
 - Share those social links and watch your network become a money printer!
-- Every link, comment, or share from your squad? That's +1 +1 +1 tokens for YOU!
-- Prove it with a screenshot and BAM! Another +3 tokens for your trouble!
+- Every link, comment, or share from your squad? That's +1 +1 +1 SGC for YOU!
+- Prove it with a screenshot and BAM! Another +3 SGC for your trouble!
 
 🧠 Paid AI Integration Insanity:
 
@@ -48,21 +48,21 @@ Here's how you're going to ride this rocket to untold riches:
 
 1️⃣ Two-Tier Referral Bonanza:
 
-- Invite your buddy? BAM! 10 tokens in your pocket!
+- Invite your buddy? BAM! 10 SGC in your pocket!
 - They invite someone? You're swimming in an extra 5!
 - It's a never-ending cascade of cold, hard crypto!
 
 2️⃣ Early Bird Mega-Boost:
 
-- First 100 to join? 1000 bonus tokens! 🤯
+- First 100 to join? 1000 bonus SGC! 🤯
 - You invited one of those lucky 100? Here's an extra 100 for your trouble!
-- Next 900? Still grabbing 100 tokens each!
+- Next 900? Still grabbing 100 SGC each!
 - Their inviters? Pocketing a sweet 10 token bonus!
 
 3️⃣ Weekly Membership Mayhem:
 
-- Top recruiter each week? You're taking home tokens equal to ALL new members!
-- Runner-up? Half of that mountain of tokens is yours!
+- Top recruiter each week? You're taking home SGC equal to ALL new members!
+- Runner-up? Half of that mountain of SGC is yours!
 - Third place? You're still drowning in 25% of the new member count!
 - Oh, and the people who invited these champions? They're snagging an EXTRA 10% on top!
 
@@ -92,7 +92,7 @@ Are you ready to rewrite your financial destiny? The AI revolution waits for no 
 
 Attention all digital auteurs, meme lords, and AI visionaries! It's time to turn your creativity up to 11 and beyond! iChain is unleashing a video-making competition that'll make Hollywood green with envy (and FOMO)!
 
-🏆 The Challenge: Remake these classics with an iChain twist, and watch the tokens rain down!
+🏆 The Challenge: Remake these classics with an iChain twist, and watch the SGC rain down!
 
 1. "Where Is The Love?" - But make it about finding love in a world of AI and blockchain!
 2. "It's Not About the Money" - Oh, the irony! Show us how iChain makes it ALL about the money!
@@ -108,7 +108,7 @@ But wait, we need MORE! Here are four more to ignite your creative inferno:
 9. "The Future's So Bright, I Gotta Wear Shades" - Because in the iChain universe, the future is blinding!
 10. "Money For Nothing" - Dire Straits' hit, twisted into a celebration of effortless iChain earnings!
 
-🤑 The Reward: 10,000 tokens for EACH winning video! That's right, we're dropping a digital fortune on the creative geniuses who can capture the iChain spirit!
+🤑 The Reward: 10,000 SGC for EACH winning video! That's right, we're dropping a digital fortune on the creative geniuses who can capture the iChain spirit!
 
 🌟 Bonus Round: Create an original iChain anthem, and if it goes viral, we'll mint you your own personalized iChainCoin!
 
@@ -118,6 +118,6 @@ Remember: In iChain, every meme is a money-maker, every video is a vault of valu
 
 This isn't just a contest; it's your ticket to digital stardom and crypto riches! So fire up those neural networks, crank out those deepfakes, and let's create some content that'll make the internet implode!
 
-Are you ready to become the next iChain viral sensation? The cameras are rolling, the AI is humming, and the tokens are waiting! Action! 🎭💰🚀
+Are you ready to become the next iChain viral sensation? The cameras are rolling, the AI is humming, and the SGC are waiting! Action! 🎭💰🚀
 
 #iChainVideoChallenge #AICreativity #MemesIntoMillions #ViralWealthfare #DirectorsBecomeWhales
